@@ -1,1 +1,0 @@
-# apprenticeship-potato.github.io
